@@ -1,1 +1,0 @@
-# GDMA-1485-Exercise-12
